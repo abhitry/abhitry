@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **abhishekmasne2015@gmail.com**
 
-- Upskilling Daily**
+- Upskilling Daily
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
